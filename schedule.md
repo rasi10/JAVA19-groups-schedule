@@ -1,5 +1,5 @@
 
-## Schedule for grou presentation friday the 21st 13.00 - 16.00
+## Schedule for group presentationsfriday the 21st 13.00 - 16.00
 
 | Plats     | Group        |
 |-----------|--------------|
